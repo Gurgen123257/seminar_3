@@ -1,1 +1,1 @@
-# seminar_3
+Gurgen Arstamyan
